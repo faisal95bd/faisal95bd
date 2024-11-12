@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **tech**
 
-- 📫 How to reach me **faisal95bd@gmail.com**
+- 📫 How to reach me [FAISAL](mailto:faisal95bd@gmail.com)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
